@@ -4,7 +4,7 @@ People have always thought that working for the government was the best, most se
 
 ### Click Here for Government Jobs
 
-- **[Bank of Maharashtra Recruitment 2025](#)**
-- **[Rubber Board Field Officer Recruitment 2025](#)**
-- **[India Post GDS Recruitment 2025](#)**
+- **[Bank of Maharashtra Recruitment 2025](https://youtube.com/shorts/51kc3uqTt0M?si=J-qd9VSOV3x7_1oP)**
+- **[Rubber Board Field Officer Recruitment 2025](https://youtube.com/shorts/J3f5FrMvZJI?si=5HD6TJZ5wBozleB-)**
+- **[India Post GDS Recruitment 2025](https://youtube.com/shorts/jEygiXLj5U4?si=QofhT13cexJk2xSm)**
 - **[NHIT Recruitment 2025](https://www.youtube.com/shorts/B9ksAHbwEw0)**
